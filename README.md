@@ -18,6 +18,4 @@
 
 # To Get More information:
 
-# Telegram: @JustTelegramShop
-
-21.05.2025
+https://telegramgrowthstudio.com/mass-dm.html
